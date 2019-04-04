@@ -1,4 +1,4 @@
-###Privacy Policy
+Privacy Policy
 
 Mykola Volosetskyy built the AYOUREV - Electric Vehicle Intelligent Catalog app as an Ad Supported app. This SERVICE is provided by Mykola Volosetskyy at no cost and is intended for use as is.
 
